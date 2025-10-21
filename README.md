@@ -17,6 +17,6 @@ Ofrecemos servicios rápidos, confiables y a precios accesibles para que tu PC f
 ## Contacto
 
 📞 Teléfono: 693 578 499  
-✉️ Email: ngonzz.soluciones@gmail.com  
+✉️ Email: contacto@ngonzz.eu 
 
 © 2025 NGONZZ Soluciones
